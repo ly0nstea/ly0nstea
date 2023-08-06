@@ -1,0 +1,4 @@
+- 👋 Dia daoibh! Is mise Lyons! (an branda tae, nach bhfuil mé sráidbhaile i bhFrancach) 
+- 👀 Is maith liom ag aistriú an cluichí ríomhairí is fearr liom.
+- 🌱 Táim ag aistriú Stardew Valley faoi láithair agus ba mhaith liom a aistriú an chluichí eile mar Pokémon.
+- 📫 Is féidir leat teacht orm ar Tumblr @ly0nstea.
